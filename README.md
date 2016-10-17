@@ -1,3 +1,0 @@
-# ThoughWorksHomework
-# ThoughWorksHomework
-# ThoughWorksHomework
